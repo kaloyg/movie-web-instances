@@ -48,6 +48,7 @@ more can be found on [FMHY](https://fmhy.pages.dev/videopiracyguide)
 
 ✅ [heartive](https://heartive.pages.dev)
 
+✅ [Watch2Day](https://watch2day.site)
 ---
 
 ## Archive
